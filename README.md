@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+### I'm a Full Stack Software Developer with more than 5 years of experience.
+
+---
+
+ - I’m currently learning new technologies :smile:
+ - I'm willing to help or collaborate to any technology ideas.
+ - You can contact me at 09394302993
+
 <!--
 **bas19/bas19** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
