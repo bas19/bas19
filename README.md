@@ -6,7 +6,7 @@
  
  - I’m currently learning new technologies :smile:
  - I'm willing to help or collaborate to any technology ideas.
- - I love to play pool billiard and chess ♟️. Also raising free range chickens 😃
+ - I love to play pool billiard and chess. Also raising free range chickens 😃
 
 
 ### Technology Stack
