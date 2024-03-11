@@ -18,7 +18,6 @@
 
 ### Connect with me
 
- - https://www.facebook.com/abaquita.llanto/
  - My contact no. **09394302993**
  - Email: abakitz10@gmail.com
 
