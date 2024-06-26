@@ -19,7 +19,7 @@
 ### Connect with me
 
  - My contact no. **09394302993**
- - Email: abakitz10@gmail.com
+ - Email: basil.softdev@gmail.com
 
 
 
